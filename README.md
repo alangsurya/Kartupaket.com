@@ -1,5 +1,3 @@
-# Hallo Gays
-
 Selamat Pagi Gays Ku....
 
 
