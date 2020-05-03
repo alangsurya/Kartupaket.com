@@ -1,3 +1,5 @@
+Website ini dibuat oleh AlangIrawan
+Hak Cipta Web, dilarang keras mengatas namakan kartupaket.com
 <b>Kunjungi Juga: <a href="http://www.kartupaket.com/">www.kartupaket.com</a></b>
 <div><b>Daftar Nomor Yang Sudah Aktivasi Paket 31 GB Bisa Flash</b></div><div><ul style="text-align: left;"><li>0822861783xx Cash</li><li>0813614981xx Cash</li><li>0822852547xx Cash</li><li>0822681636xx Cash</li><li>0821711135xx Cash</li><li>0823907707xx Cash</li><li>0853564643xx Cash</li><li>0823847813xx Cash</li><li>0823874724xx Cash</li><li>0813786870xx Pembayaran Via Pulsa</li></ul></div><div><b>Bagi yang ingin daftar bisa datang kerumah Pak H. Pian Pematang Sikek Wa: 085156589346</b></div><div><br /></div>
 
