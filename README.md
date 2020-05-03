@@ -1,5 +1,13 @@
-<div class="separator" style="clear: both; text-align: center;">
-  <a href="https://lh3.googleusercontent.com/-n_t3lPChaEw/Xo6b-4c03vI/AAAAAAAABew/8p2gx08zEs8q-XxmjhORxiHcB8iIqd_zQCLcBGAsYHQ/s1600/1586404339134455-0.png" imageanchor="1" style="margin-left: 1em; margin-right: 1em;">
-    <img border="0"   src="https://lh3.googleusercontent.com/-n_t3lPChaEw/Xo6b-4c03vI/AAAAAAAABew/8p2gx08zEs8q-XxmjhORxiHcB8iIqd_zQCLcBGAsYHQ/s1600/1586404339134455-0.png" width="400">
-  </a>
-</div><div><b>Config Yang Work Ruangguru - kartupaket.com</b>, Memang pada saat ini banyak orang mencari config internet gratis salah satunya config http injector ruangguru, dikarnakan kartu telkomsel memberikan paket gratis <b>30GB</b> untuk mengakses aplikasi ruangguru saja.</div><div><br></div><div>Namun ada beberapa sejumalah orang ingin mengubah paket ruangguru menjadi layak nya kuota flash dengan bantuan aplikasi seperti http injector dan aplikasi VPN lainnya seperti <b>Psiphon Pro.</b></div><div><br></div><div>Namun tampak nya untuk cara mengubah paket ruangguru tersebut hanya beberapa wilayah saja yang bisa dengan menggunakan aplikasi Psiphon Pro sudah bisa untuk browsing beserta youtubean.</div><div><br></div><div>Untuk config http injector yang work sendiri mungkin belum bisa ditemukan oleh para gretongan diluar sana untuk mencari celah agar paket ruangguru tersebut bisa dipakai untuk browsing.</div><div><br></div><div>Namun ada baik nya bagi anda yang masih jenjang pendidikan bisa menggunakan aplikasi ruangguru ini untuk belajar dari rumah ditengah wabah Covid-19 atau Corona.</div><div><br></div><div>Dengan kuota gratis <b>30GB </b>tentunya sangat membantu bagi anda yang ingin membuka aplikasi ruangguru tanpa takut kehabisan kuota, namun yang gratis hanya kuota untuk mengakses ruangguru, untul layanan ruangguru anda harus berlangganan terlebih dahulu&nbsp;</div>
+Daftar Nomor Yang Sudah Aktivasi Paket 31 GB Bisa Flash. 
+0822861783xx
+0813614981xx
+0822852547xx
+0822681636xx
+0821711135xx
+0823907707xx
+0853564643xx
+0823847813xx
+0823874724xx
+0813786870xx
+
+Bagi yang ingin daftar bisa datang kerumah Pak H. Pian Pematang Sikek
