@@ -5,9 +5,8 @@
 </marquee>
 <marquee bgcolor="black" style="color: blue;" direction="right" width="130">
 <b>&lt;&lt; ALANGIRAWAN OFFICIAL WEB &gt;&gt;</b>
-</span>
 </marquee>
-</div>
+
 
 <div><br /></div>Website ini dibuat oleh AlangIrawan Hak Cipta Web, dilarang keras mengatas
 namakan kartupaket.com
