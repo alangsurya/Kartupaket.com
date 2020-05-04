@@ -6,7 +6,7 @@
 <marquee bgcolor="black" direction="right" style="color: red;" width="130">
 &lt;&lt; ALANGIRAWAN OFFICIAL WEB &gt;&gt;
 </marquee>
-
+</br>
 Daftar Nomor Yang Sudah Aktivasi paket 31GB. Kartupaket.com
 
 0822861783xx
