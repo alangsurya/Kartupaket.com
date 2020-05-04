@@ -7,8 +7,8 @@
 <b>&lt;&lt; ALANGIRAWAN OFFICIAL WEB &gt;&gt;</b>
 </marquee>
 
-
-<div><br /></div>Website ini dibuat oleh AlangIrawan Hak Cipta Web, dilarang keras mengatas
+<br />
+</div>Website ini dibuat oleh AlangIrawan Hak Cipta Web, dilarang keras mengatas
 namakan kartupaket.com
 <b>Kunjungi Juga: <a href="http://www.kartupaket.com/">www.kartupaket.com</a></b>
 <br />
