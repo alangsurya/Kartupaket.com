@@ -12,6 +12,7 @@
 <div><br /></div>Website ini dibuat oleh AlangIrawan Hak Cipta Web, dilarang keras mengatas
 namakan kartupaket.com
 <b>Kunjungi Juga: <a href="http://www.kartupaket.com/">www.kartupaket.com</a></b>
+<br />
 <div><b>Daftar Nomor Yang Sudah Aktivasi Paket 31 GB Bisa Flash</b></div>
 <div>
   <ul style="text-align: left;">
