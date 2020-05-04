@@ -4,7 +4,7 @@
 <b>&lt;&lt;</b><b> ALANGIRAWAN OFFICIAL WEB &gt;&gt;</b>
 </marquee>
 <marquee bgcolor="black" style="color: blue;" direction="right" width="130">
-<b>&lt;&lt; MACAM &gt;&gt;</b>
+<b>&lt;&lt; ALANGIRAWAN OFFICIAL WEB &gt;&gt;</b>
 </span>
 </marquee>
 </div>
