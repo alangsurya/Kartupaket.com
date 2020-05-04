@@ -7,6 +7,8 @@
 <b>&lt;&lt; ALANGIRAWAN OFFICIAL WEB &gt;&gt;</b>
 </marquee>
 
+<p style="margin-top:10px; margin-bottom:0; padding-bottom:0; text-align:center; line-height:0"><a target="_blank" href="http://feeds.feedburner.com/~r/Kartupaket/~6/3"><img src="http://feeds.feedburner.com/Kartupaket.3.gif" alt="Kartu Paket" style="border:0"></a></p><p style="margin-top:5px; padding-top:0; font-size:x-small; text-align:center"><a href="https://feedburner.google.com/fb/a/headlineanimator/install?id=g8hca9t5h2vgu9nr35trupuc1g&amp;w=3" onclick="window.open(this.href, 'haHowto', 'width=520,height=600,toolbar=no,address=no,resizable=yes,scrollbars'); return false" target="_blank">&uarr; Grab this Headline Animator</a></p>
+
 <br />
 Website ini dibuat oleh AlangIrawan Hak Cipta Web, dilarang keras mengatas
 namakan kartupaket.com
