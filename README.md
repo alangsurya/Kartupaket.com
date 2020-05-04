@@ -1,3 +1,13 @@
+<div style="text-align: center;">
+<span style="font-size: x-large;">
+<marquee bgcolor="black" style="color: red;" direction="left" width="130">
+<b>&lt;&lt;</b><b> ALANGIRAWAN OFFICIAL WEB &gt;&gt;</b>
+</marquee>
+<marquee bgcolor="black" style="color: blue;" direction="right" width="130">
+<b>&lt;&lt; MACAM &gt;&gt;</b>
+</span>
+</marquee>
+</div>
 <marquee behavior="alternate">Web Official AlangIrawan</marquee>
 <div><br /></div>Website ini dibuat oleh AlangIrawan Hak Cipta Web, dilarang keras mengatas
 namakan kartupaket.com
